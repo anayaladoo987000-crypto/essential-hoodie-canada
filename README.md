@@ -6,3 +6,7 @@ https://essentialshoodie.ca/
 Substack:
 
 https://substack.com/@essentials29
+
+About me:
+
+https://about.me/driftculture
