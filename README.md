@@ -11,7 +11,7 @@ About me:
 
 https://about.me/driftculture
 
-Essentials Hoodie Canada Guide Review
+# Essentials Hoodie Canada Guide Review
 
 The essentials hoodie canada has become a staple in modern streetwear, known for its clean design, premium feel, and everyday versatility. Created under the Fear of God Essentials label, this hoodie blends luxury aesthetics with casual comfort, making it a popular choice across Canada and beyond.
 
