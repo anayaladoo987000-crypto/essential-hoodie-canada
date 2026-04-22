@@ -11,6 +11,10 @@ About me:
 
 https://about.me/driftculture
 
+Notion:
+
+https://adorable-bicycle-a05.notion.site/Essential-Hoodie-Canada-A-Modern-Streetwear-Staple-for-Everyday-Comfort-34a58111d1f9800581b8e39b5f33b311
+
 # Essentials Hoodie Canada Guide Review
 
 The essentials hoodie canada has become a staple in modern streetwear, known for its clean design, premium feel, and everyday versatility. Created under the Fear of God Essentials label, this hoodie blends luxury aesthetics with casual comfort, making it a popular choice across Canada and beyond.
